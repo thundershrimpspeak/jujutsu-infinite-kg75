@@ -1,4 +1,4 @@
-#  
+#  advanced jujutsu infinite Script is the best jujutsu infinite Script, featuring teleport and no cooldown. Safe and powerful for all your needs.
 
 
 
